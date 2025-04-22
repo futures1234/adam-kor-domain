@@ -1,1 +1,1 @@
-# adam-kor-domain
+# boss-randing
