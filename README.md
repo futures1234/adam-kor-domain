@@ -1,0 +1,1 @@
+# adam-kor-domain
